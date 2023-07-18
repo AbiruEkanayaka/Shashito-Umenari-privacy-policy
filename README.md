@@ -1,0 +1,1 @@
+# Shashito-Umenari-privacy-policy
