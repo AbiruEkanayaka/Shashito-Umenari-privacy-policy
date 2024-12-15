@@ -52,4 +52,4 @@ We may update this Privacy Policy from time to time to reflect changes in our pr
 
 ## 8. Contact Us
 
-If you have any questions or concerns about this Privacy Policy or how we handle your data, please contact us via email: support@vortexai.org or through our Discord server.
+If you have any questions or concerns about this Privacy Policy or how we handle your data, please contact us via email: abiruekanayaka5@gmail.com or through our Discord server.
